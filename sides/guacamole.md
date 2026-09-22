@@ -7,7 +7,7 @@
 - 1 chili
 - 1 lime
 - 1 tsp salt
-- 1/2 onion
+- 1/2 onion (replace with garlic and/or some apple if Matthew is in attendance)
 - 1 Tbsp cilantro
 
 
