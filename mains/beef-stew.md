@@ -1,14 +1,21 @@
-# Beef STew
+# Beef Stew
 
 ## Ingredients
 
-- Ox tail (>1kg)
+- Ox tail (~2 kg)
 - Garlic (Half a head)
-- Carrots
-- Potatoes
-- Tomato paste
-- Red wine
-- Flour
+- Carrots (~5 medium)
+- Potatoes (~3 medium)
+- Tomato paste (2 Tbsp)
+- Red wine (1 cup)
+- Flour (1/2 cup)
+- Beef stock
+- Bay leaves (3-4)
+- Thyme (1 tsp)
+- Oregano (1/2 tsp)
+- Salt
+- Pepper
+- Water
 
 ## Instructions 
 
